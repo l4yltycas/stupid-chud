@@ -24,7 +24,7 @@
 ###
 
 <div align="center">
-  <img height="200" src="https://i.pinimg.com/1200x/1c/10/92/1c1092be0b769fab3800ac1696ebedb7.jpg"  />
+![image alt] (https://github.com/l4yltycas/stupid-chud/blob/cd263e8e2f8e40524b1feffb777e598766ed756d/1c1092be0b769fab3800ac1696ebedb7.jpg)
 </div>
 
 ###
