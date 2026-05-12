@@ -2,7 +2,7 @@
 
 ###
 
-<p align="center">⁺　.⠀ Casper , age⠀  ⌒₊˚ ❤︎ ⠀ <br>                    he   ノ⠀him .⠀<br>       ︵  ㅤ <br>🪽     . . .⠀⠀꒰ https://k1ttyp4wz.straw.page ꒱ .ᐟ <br>                                <br><br>         INT to be friends  .ᐟ</p>
+<p align="center">⁺　.⠀ Casper , age⠀  ⌒₊˚ ❤︎ ⠀ <br>                    he   ノ⠀him .⠀<br>       ︵  ㅤ <br>🪽     . . .⠀⠀꒰ https://moreaboutcasper.straw.page ꒱ .ᐟ <br>                                <br><br>         INT to be friends  .ᐟ</p>
 
 ###
 
